@@ -13,6 +13,8 @@
 
 - You have drop the line   Have to say no something   have to no listen somebody because they are borken . Have block time to get pro.
 
+- 重要且紧急第一，不紧急但是很重要第二。 你永远在这两个区间活动我就不怕你没有效率了！
+
 
 
 
