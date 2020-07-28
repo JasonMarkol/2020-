@@ -15,6 +15,7 @@
 
 - 重要且紧急第一，不紧急但是很重要第二。 你永远在这两个区间活动我就不怕你没有效率了！
 
+- Make Block time for yourself . Block phone Block computer.
 
 # When you use it You own it . When you learn it ,You lose it .
 
