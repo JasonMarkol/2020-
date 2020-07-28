@@ -21,6 +21,8 @@
 - 学到的用过了那是我的，学到了没用过了是等于没学。
 
 
+# Have end time .  Train yourself to go next things you go shoter and shoter to waste time things.
+
 
 
 
