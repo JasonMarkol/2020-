@@ -11,6 +11,9 @@
 
 - 你一定重复不断地听说过28法则，但是已经习惯了，永远不用。  用8成的专注力做2成最重要的事情， 你就可以用4个小时完成8小时的工作。 
 
+- You have drop the line   Have to say no something   have to no listen somebody because they are borken . Have block time to get pro.
+
+
 
 
 
