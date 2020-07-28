@@ -16,6 +16,10 @@
 - 重要且紧急第一，不紧急但是很重要第二。 你永远在这两个区间活动我就不怕你没有效率了！
 
 
+# When you use it You own it . When you learn it ,You lose it .
+
+- 学到的用过了那是我的，学到了没用过了是等于没学。
+
 
 
 
