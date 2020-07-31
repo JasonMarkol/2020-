@@ -24,6 +24,9 @@
 
 # Have end time .  Train yourself to go next things you go shoter and shoter to waste time things.
 
+# 5min Flash in the night   5min flash in the moring 
+
+
 
 
 
