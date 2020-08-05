@@ -34,3 +34,4 @@
 《無師自通：解析問題→反向分析→自創解決方法》
 《斜槓青年：學習對工作有用的技能，工作中不斷學習，奠定專業基礎，收入翻倍。》
 《制作销售主页- Build a Sales Funnel for Free in Wordpress, Step by Step》
+《综合技能（社交技能+职业技能+应酬技能）=拿到offer》
