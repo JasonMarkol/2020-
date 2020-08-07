@@ -26,17 +26,17 @@
 
 # 5min Flash in the night   5min flash in the moring 
 
-
-《OKEX合约套利机器人》
-《比特币套利方法》
-《外汇套利》
-《極速讀書：提出問題→快速翻閱→整理重點→複述心得》
-《無師自通：解析問題→反向分析→自創解決方法》
-《斜槓青年：學習對工作有用的技能，工作中不斷學習，奠定專業基礎，收入翻倍。》
-《制作销售主页- Build a Sales Funnel for Free in Wordpress, Step by Step》
-《综合技能（社交技能+职业技能+应酬技能）=拿到offer》
-《编程业务对接实战代码》
-《INWARD CHANT | Beatbox Tutorial by Madox》
+-《副业小项目》
+-《OKEX合约套利机器人》
+-《比特币套利方法》
+-《外汇套利》
+-《極速讀書：提出問題→快速翻閱→整理重點→複述心得》
+-《無師自通：解析問題→反向分析→自創解決方法》
+-《斜槓青年：學習對工作有用的技能，工作中不斷學習，奠定專業基礎，收入翻倍。》
+-《制作销售主页- Build a Sales Funnel for Free in Wordpress, Step by Step》
+-《综合技能（社交技能+职业技能+应酬技能）=拿到offer》
+-《编程业务对接实战代码》
+-《INWARD CHANT | Beatbox Tutorial by Madox》
 - 找到稳定的小项目积少成多每天去干就行了！！！ 上什么班！ 不要跟我谈工作，我的理想是呆在家里不工作！！！
 -《美工兼职》
 - 《PY语音助手》《python实现语音助手》
