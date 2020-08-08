@@ -86,3 +86,6 @@
 
 # - 
 WorshipGoddessViolet.gamil.com
+
+# 英文单词
+- legitimate 
