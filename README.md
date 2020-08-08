@@ -92,3 +92,4 @@ WorshipGoddessViolet.gamil.com
 
 # NLP
 - fractionation technique
+- Self-Hypnosis
