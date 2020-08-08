@@ -74,6 +74,7 @@
 - 《湖南女子举报渣土车乱倒垃圾，一家四口遭砍，令人心寒！》
 
 # 课程
+- Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
 - Passive income for programmers
 # 改运
