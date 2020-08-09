@@ -74,6 +74,7 @@
 - 《东莞丐帮调查：故意将老人小孩致残逼其乞讨》
 - 《湖南女子举报渣土车乱倒垃圾，一家四口遭砍，令人心寒！》
 - 疫情期间影视公司倒闭6600家公司，一张电影票5元一张。
+- 张玉环案
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
