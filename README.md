@@ -97,3 +97,6 @@ WorshipGoddessViolet.gamil.com
 # NLP
 - fractionation technique
 - Self-Hypnosis
+
+# 谷歌插件
+- Popup Tab Switcher
