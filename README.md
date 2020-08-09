@@ -98,5 +98,13 @@ WorshipGoddessViolet.gamil.com
 - fractionation technique
 - Self-Hypnosis
 
+# 电脑配置
+- Microsoft Edge （TTS语音）
+- Firefox （视频侦测下载）
+- 360浏览器
+- 谷歌浏览器 
+
+- 虚拟机 
+
 # 谷歌插件
 - Popup Tab Switcher
