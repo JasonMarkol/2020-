@@ -42,7 +42,7 @@
 - 《PY语音助手》《python实现语音助手》
 - 《Simple one trick to make money》
 - 《绿色证券》 支持绿色产业项目的证券
-- 金雪炫《kim seolhyun》
+- 金雪炫《kim seolhyun》   - LuxyGirls
 - 《Game Development》
 - 线报采集 - 好物轻松买 http://www.hwqsm.com/
 # 炒币经验
