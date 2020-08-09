@@ -104,7 +104,8 @@ WorshipGoddessViolet.gamil.com
 - 360浏览器
 - 谷歌浏览器 
 
-- 虚拟机 
+- 虚拟机  - 做测试的
+- 手机模拟器 - 薅羊毛
 
 # 谷歌插件
 - Popup Tab Switcher
