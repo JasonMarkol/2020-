@@ -98,7 +98,7 @@ WorshipGoddessViolet.gamil.com
 # NLP
 - fractionation technique
 - Self-Hypnosis
-
+- 预设问题危机-冥想制止危机
 # 电脑配置
 - Microsoft Edge （TTS语音）
 - Firefox （视频侦测下载）
