@@ -82,6 +82,7 @@
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
 - Passive income for programmers
 - Learn Productivity Lab for Small Business and Startups
+- Learning Strategies & Memory Boosting Training Program
 # 改运
 - 白度母心咒 21遍 White Tara - 20200807
 - 每天做一点以前从来没做过的新鲜事而且带有一点点的挑战性，记录日记，以后看回日记会感觉很有味道。
