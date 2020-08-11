@@ -115,3 +115,7 @@ WorshipGoddessViolet.gamil.com
 
 # 谷歌插件
 - Popup Tab Switcher
+
+# 职业
+- 店长
+- 仓管
