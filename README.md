@@ -78,7 +78,7 @@
 - 疫情期间影视公司倒闭6600家公司，一张电影票5元一张。
 - 张玉环案
 - massive looting in Chicago
-- 中国“芯”诞生，打破技术垄断，玩到超车！
+- 中国“芯”诞生，打破技术垄断，玩到超车！-中微半导体
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
