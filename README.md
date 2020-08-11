@@ -79,6 +79,8 @@
 - 张玉环案
 - massive looting in Chicago
 - 中国“芯”诞生，打破技术垄断，玩到超车！-中微半导体
+- 身亡杂技演员家属不接受50万赔偿 （律师起价100万）保守表演没有放垫子
+- 宝马，等个红绿灯就着火起来了！ 幸亏有配备灭火器！ 
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
