@@ -136,3 +136,6 @@ WorshipGoddessViolet.gamil.com
 # 职业
 - 店长
 - 仓管
+
+# 学习研究
+- 缠论
