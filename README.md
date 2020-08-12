@@ -87,6 +87,7 @@
 - 电影《狼溪 Wolf Creek》 - 由真实事件改编  http://80smp4.cc/video/?59119-0-0.html   - How can you be found ... when nobody know you are missing ... - cassandra magrath
 - Ivan Milat - roman heinz  (狼溪真实事件人物)  salt creek was his hunting ground - I feel like I was in a horror movie then you know whats going to happen ...
 - 《德州电锯杀人狂》于1974年公映。它的灵感来自于“平原镇屠夫”真实事件，并演化为五个高校学生在德州遇到电锯杀人狂，继而惨遭屠戮的故事。 - Edward Theodore Gein -  Ed Gein: The Real-life Leatherface
+- Grim discovery | Sinkhole that ISIS used to dump victims' bodies discovered in Iraq - https://www.youtube.com/watch?v=w5WGVkQfXfg
 
 
 # 课程
