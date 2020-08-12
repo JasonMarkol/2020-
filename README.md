@@ -84,7 +84,7 @@
 - 宝马，等个红绿灯就着火起来了！ 幸亏有配备灭火器！ 
 - 为什么潜水员下水都要带鱼叉,原来只是防止它
 - 电影《狼溪 Wolf Creek》 - 由真实事件改编  http://80smp4.cc/video/?59119-0-0.html   - How can you be found ... when nobody know you are missing ... - cassandra magrath
-- Ivan Milat  (狼溪真实事件人物)  salt creek was his hunting ground 
+- Ivan Milat - roman heinz  (狼溪真实事件人物)  salt creek was his hunting ground 
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
