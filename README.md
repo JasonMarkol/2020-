@@ -104,6 +104,8 @@ WorshipGoddessViolet.gamil.com
 
 # 英文单词
 - survival giude
+- desolate
+- testimony
 - legitimate 
 - collapses
 - verdict
