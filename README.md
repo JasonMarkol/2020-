@@ -107,6 +107,8 @@ WorshipGoddessViolet.gamil.com
 - verdict
 - Defendant
 - haystack
+- balck and blue
+- swore
 # NLP
 - fractionation technique
 - Self-Hypnosis
