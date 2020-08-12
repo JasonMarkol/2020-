@@ -106,6 +106,7 @@
 WorshipGoddessViolet.gamil.com
 
 # 英文单词
+- iraq
 - survival giude
 - desolate
 - testimony
