@@ -124,6 +124,7 @@ WorshipGoddessViolet.gamil.com
 - balck and blue
 - swore
 - adrenaline
+- fragile
 # NLP
 - fractionation technique
 - Self-Hypnosis
