@@ -145,3 +145,7 @@ WorshipGoddessViolet.gamil.com
 # 学习研究
 - 缠论
 - 韩国小姐姐
+- 短视频运营
+- 自媒体运营
+- 影视剪辑
+- PS淘宝美工兼职
