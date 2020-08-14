@@ -113,6 +113,7 @@
 WorshipGoddessViolet.gamil.com
 
 # 英文单词
+- rigid
 - iraq
 - survival giude
 - desolate
