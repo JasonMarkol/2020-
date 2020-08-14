@@ -168,3 +168,4 @@ WorshipGoddessViolet.gamil.com
 - Python - AI大数据 - 智能量化分析- 自动分析大数据 给决定...  炒币炒股炒黄金外汇现货交易就靠你了！！！ -- 智能量化交易
 - Edge training repeat - 2 Hour - Edge joi  - Edging Challenge
 - hijacked by my fear
+- 自制rss订阅源
