@@ -155,6 +155,7 @@ WorshipGoddessViolet.gamil.com
 - 仓管
 
 # 学习研究
+- Python - 网站资讯采集
 - 缠论
 - 韩国小姐姐
 - 短视频运营
