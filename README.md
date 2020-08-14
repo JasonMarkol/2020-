@@ -156,6 +156,7 @@ WorshipGoddessViolet.gamil.com
 - 仓管
 
 # 学习研究
+- 《The October Man method 》 《The October Man Sequence》
 - Python - 网站资讯采集
 - 缠论
 - 韩国小姐姐
