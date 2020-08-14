@@ -129,6 +129,8 @@ WorshipGoddessViolet.gamil.com
 - swore
 - adrenaline
 - fragile
+- outlandish rumors
+- bozos
 # NLP
 - fractionation technique
 - Self-Hypnosis
