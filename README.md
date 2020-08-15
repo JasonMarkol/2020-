@@ -1,7 +1,7 @@
 # 2020网赚项目打卡记录
 
-- 趣猫 - 根本不像个矿机，手续费15币！太不像话了！！！ 直接卸载了！！！（已卸载 太辣鸡！！！）    以后 任务平台+区块链的一律不做！！！
-
+- 以后 任务平台+区块链的一律不做！！！（骗你做任务的，还有淘宝客+区块链也不用搞了）
+- 九赚挂机，全自动挂机抖音、快手赚钱，还支持知乎拼多多
 # How to Build A Routine  - How have fun at home  
 
 - Design a routine that aligns with your lifestlye 
