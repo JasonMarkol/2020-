@@ -96,7 +96,7 @@
 - 《德州电锯杀人狂》于1974年公映。它的灵感来自于“平原镇屠夫”真实事件，并演化为五个高校学生在德州遇到电锯杀人狂，继而惨遭屠戮的故事。 - Edward Theodore Gein -  Ed Gein: The Real-life Leatherface
 - Grim discovery | Sinkhole that ISIS used to dump victims' bodies discovered in Iraq - https://www.youtube.com/watch?v=w5WGVkQfXfg
 - Great blue hole - What's At The Bottom Of The Great Blue Hole? dead body ,coke can...
-
+- 照護失智父母不嫌累！唐從聖：他們把你拉拔到大，現在折騰一下算什麼？
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
