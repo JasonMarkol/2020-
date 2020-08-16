@@ -158,6 +158,7 @@ WorshipGoddessViolet.gamil.com
 - 仓管
 
 # 学习研究
+- Trading tips
 - 《The October Man method 》 《The October Man Sequence》
 - 《The Rule - David X 》
 - 《Shogun Method》 riview - It was commercial:making or intended to make a profit.
