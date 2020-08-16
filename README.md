@@ -159,6 +159,7 @@ WorshipGoddessViolet.gamil.com
 
 # 学习研究
 - Trading tips
+- 量化交易系统-使用某种指标触发交易-可以是自己设置的指标也可以是系统指标-检查指标状态是否满足交易条件-止盈止损分批入场分批出场
 - 《The October Man method 》 《The October Man Sequence》
 - 《The Rule - David X 》
 - 《Shogun Method》 riview - It was commercial:making or intended to make a profit.
