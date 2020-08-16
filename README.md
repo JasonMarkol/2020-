@@ -159,7 +159,7 @@ WorshipGoddessViolet.gamil.com
 # 学习研究
 - 《The October Man method 》 《The October Man Sequence》
 - 《The Rule - David X 》
-- 《Shogun Method》 riview
+- 《Shogun Method》 riview - It was commercial:making or intended to make a profit.
 - 《网球的内心游戏》- 最自由的状态应该是那种游刃有余的状态。
 - Python - 网站资讯采集
 - 缠论
