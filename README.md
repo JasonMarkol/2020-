@@ -97,6 +97,7 @@
 - Grim discovery | Sinkhole that ISIS used to dump victims' bodies discovered in Iraq - https://www.youtube.com/watch?v=w5WGVkQfXfg
 - Great blue hole - What's At The Bottom Of The Great Blue Hole? dead body ,coke can...
 - 照護失智父母不嫌累！唐從聖：他們把你拉拔到大，現在折騰一下算什麼？
+- 四千警民拉网搜捕乐安杀人嫌犯，当地人称山林间野果山泉充足
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
