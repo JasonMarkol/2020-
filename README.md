@@ -161,6 +161,7 @@ WorshipGoddessViolet.gamil.com
 - 插画师-准备工具-PS-手绘板
 # 学习研究
 - Trading tips-bitget无需会分析，无需会技术，无脑跟单模式。
+- 交易员- 裸K交易法
 - 量化交易系统-使用某种指标触发交易-可以是自己设置的指标也可以是系统指标-检查指标状态是否满足交易条件-止盈止损分批入场分批出场  -  检查这个指标的逻辑，以及这个交易系统的管理，怎么分批入场和出场，这就是一个系统的利润交易系统了。
 - 《The October Man method 》 《The October Man Sequence》
 - 《The Rule - David X 》
