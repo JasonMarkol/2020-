@@ -142,6 +142,7 @@ WorshipGoddessViolet.gamil.com
 - fragile
 - outlandish rumors
 - bozos
+- UNOFFICIAL Patch - 非官方补丁，非电脑补丁
 # NLP
 - fractionation technique
 - Self-Hypnosis
