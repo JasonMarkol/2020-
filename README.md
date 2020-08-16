@@ -209,3 +209,6 @@ WorshipGoddessViolet.gamil.com
 - STORE / CAM
 - ABOUT ME
 - https://www.goddessrainn.com/
+
+# 个人发展
+- 内向人如何提升自我？多聊就是提升。
