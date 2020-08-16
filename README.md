@@ -119,6 +119,7 @@ WorshipGoddessViolet.gamil.com
 # 英文单词
 - Lousy
 - rigid
+- Eunuch
 - iraq
 - survival giude
 - desolate
