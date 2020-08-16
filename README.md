@@ -2,6 +2,7 @@
 
 - 以后 任务平台+区块链的一律不做！！！（骗你做任务的，还有淘宝客+区块链也不用搞了）
 - 九赚挂机，全自动挂机抖音、快手赚钱，还支持知乎拼多多
+- 比邻社区 20200816 好玩吧模式 等九月份看还在不在
 # How to Build A Routine  - How have fun at home  
 
 - Design a routine that aligns with your lifestlye 
