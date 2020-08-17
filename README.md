@@ -165,6 +165,7 @@ WorshipGoddessViolet.gamil.com
 - 仓管
 - 业务员-保单退保业务
 - 插画师-准备工具-PS-手绘板
+- 智能制造调控
 # 学习研究
 - Trading tips-bitget无需会分析，无需会技术，无脑跟单模式。
 - 交易员- 裸K交易法
