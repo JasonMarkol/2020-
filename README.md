@@ -218,3 +218,7 @@ WorshipGoddessViolet.gamil.com
 - 寸止-红绿灯-寸止训练-https://www.youtube.com/results?search_query=%E5%AF%B8%E6%AD%A2
 # 个人发展
 - 内向人如何提升自我？多聊就是提升。
+
+# 工厂
+- 上班模式- 早上8.30-晚上8.30  - 两班倒模式-早上8点到晚上8点，晚上8点到明早8点。  分块模式-7.00-11.00 1.30-5.30  
+
