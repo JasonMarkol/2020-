@@ -33,6 +33,7 @@
 # 5min Flash in the night   5min flash in the moring 
 
 -《副业小项目》
+-《自媒体运营》
 -《OKEX合约套利机器人》
 -《比特币套利方法》
 -《外汇套利》
