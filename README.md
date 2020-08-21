@@ -119,6 +119,8 @@
 - Great blue hole - What's At The Bottom Of The Great Blue Hole? dead body ,coke can...
 - 照護失智父母不嫌累！唐從聖：他們把你拉拔到大，現在折騰一下算什麼？
 - 四千警民拉网搜捕乐安杀人嫌犯，当地人称山林间野果山泉充足
+- 枉为父母！父亲抱摔幼童致死，母亲在旁拍摄
+
 # 课程
 - Ross Jeffries
 - Kelbyone - Get Up to Speed Fast on the New Photoshop 2020
@@ -132,7 +134,8 @@
 - 创造： 预设现在三十分钟之内，我给自己一个目标，（哦，原来目标设定是我在每个十几分钟的时间点我就需要重新预设！要不然就丢掉了）冥想之后要创造的，然后再做。   就是几秒钟闭眼，快的几秒，刚开始几分钟来练习然后再操作学习工作。   预设你要行动行为，然后按照那个路线操作，可能有点偏差当然，慢慢练习调整。
 - 预设日程表里面间隔休息时间段 - 番茄休息学习工作法
 
-# - 
+
+# 
 WorshipGoddessViolet.gamil.com
 
 # 英文单词
